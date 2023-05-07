@@ -17,8 +17,8 @@
 
 You can reach me through the following channels:
 
-    [Reddit](https://www.reddit.com/user/bestOfadb)
-    [Email](utilizedwill@proton.me)
-    [Twitter](https://twitter.com/utilizedwill)
+   [Reddit](https://www.reddit.com/user/bestOfadb)
+   [Email](utilizedwill@proton.me)
+   [Twitter](https://twitter.com/utilizedwill)
 
 Feel free to get in touch if you have any questions or would like to collaborate on a project!
